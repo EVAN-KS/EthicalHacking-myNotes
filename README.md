@@ -127,4 +127,3 @@ Cybersecurity is not just for IT experts—it affects **everyone** who uses the 
 
 ---
 
-Let me know if you'd like this turned into a printable PDF, a classroom handout, or PowerPoint slides!
